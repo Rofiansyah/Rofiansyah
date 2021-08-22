@@ -1,4 +1,4 @@
-<a href="#"><img width="100%" height="auto" src="https://i.imgur.com/bUGzzZG.png" height="175px"/></a>
+<a href="#"><img width="100%" height="auto" src="https://i.imgur.com/n6Il2q3.png" height="175px"/></a>
 
 <h1 align="center"> Hello! <img src="https://raw.githubusercontent.com/MartinHeinz/MartinHeinz/master/wave.gif" width="30px">, I'm Wizman Rofiansyah</h1>
 <h3 align="center">I'm a student at Telkom University.</h3>
