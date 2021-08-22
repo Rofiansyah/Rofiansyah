@@ -26,7 +26,7 @@
   
 - **[Sekretaris Umum Karang Taruna RW 14 Cisaranten Kidul (2019 - Sekarang)](https://www.instagram.com/opatbelasdude/)**
 
-- **[Ketua AMSA Priangan Barat (2021 - Sekarang)](https://www.instagram.com/amsapribar/)**
+- **[Ketua AMSA Priangan Barat (2020 - Sekarang)](https://www.instagram.com/amsapribar/)**
   
 - **[Asisten Praktikum Laboratorium Dasar Komputer (2021 - Sekarang)](https://www.instagram.com/telu.daskom/)**
 <br/>
